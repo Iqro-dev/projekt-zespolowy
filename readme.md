@@ -1,0 +1,1 @@
+readme dla commita maina
